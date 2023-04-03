@@ -1,2 +1,2 @@
 # crm
-https://vector97.github.io/crm/
+https://fAssqy.github.io/csme/
